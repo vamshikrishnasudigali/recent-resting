@@ -1,4 +1,0 @@
-vamshi
-simba 
-love 
-u
